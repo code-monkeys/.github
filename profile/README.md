@@ -1,3 +1,3 @@
 # Code Monkeys
 
-Hello, fellow monkeys! Apes together. Win.
+Hello, fellow monkeys! Apes together. Strong!
